@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...IT Support - Networking
 - 💞️ I’m looking to collaborate on ...Anything new
 - 📫 How to reach me ...w.lahache@lbpearson.ca
-- 😄 Pronouns: ...just Him
+- 😄 Pronouns: ...just He/Him
 - ⚡ Fun fact: ...Non at the moment
 
 <!---
